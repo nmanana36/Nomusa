@@ -1,0 +1,2 @@
+# Nomusa
+Psychic winner
